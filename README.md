@@ -1,0 +1,1 @@
+# Speech-to-Text-Converter-Transforming-Verbal-Communication-into-Textual-Representation
